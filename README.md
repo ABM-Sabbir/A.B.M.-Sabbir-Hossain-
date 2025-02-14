@@ -49,7 +49,7 @@ Research & Writing: Legal research, case studies, and academic papers in law & j
 
 📧 Email: [abmatwork@gmail.com]
 🌐 LinkedIn: www.linkedin.com/in/abmsabbirhossain
-📜 GitHub: github.com/abm-Sabbir
+📜 GitHub: [github.com/abm-Sabbir](https://github.com/ABM-Sabbir)
 
 
 ---
